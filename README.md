@@ -5,7 +5,7 @@
 # 🛸💫 About Me
 
 
-- 🔭 I’m currently working on **Full Stack Web Development**
+- 🔭 I’m currently working on **Full Stack Web Development** and **Penetration Testing**
 
 - 💬 Ask me about **life in Kepler-452b Prime!**
 
