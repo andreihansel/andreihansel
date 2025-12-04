@@ -9,9 +9,9 @@
 
 - 💬 Ask me about **life in Kepler-452b Prime!**
 
-- 📫 How to reach me **andrei_hansel132@yahoo.com**
+- 📫 How to reach me **hmu@tamesec.me**
 
-- 📄 Know about my experiences [https://linktr.ee/andreihansel](https://linktr.ee/andreihansel)
+- 📄 Know about my experiences [https://tamesec.me](https://tamesec.me)
 
 - ⚡ Fun fact **while in my time at Kepler-452b Prime, i was a Content Creator!**
 
